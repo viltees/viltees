@@ -1,4 +1,7 @@
-## Hi there 👋
+## hello hello
+
+Just a tired individual hoping to learn something cool (_ _  ) . . z Z 
+Pronouns: they/she/he 
 
 <!--
 **viltees/viltees** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
